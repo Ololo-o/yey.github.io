@@ -1,2 +1,0 @@
-# yey.github.io
-yey
